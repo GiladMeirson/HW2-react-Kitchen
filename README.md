@@ -1,2 +1,0 @@
-# Tirgol
- ssssss
